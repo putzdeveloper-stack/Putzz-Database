@@ -1,2 +1,2 @@
-# Putzz-Database
+# gamebyputzz
 Putzz XD12
