@@ -1,2 +1,0 @@
-# gamebyputzz
-Putzz XD12
